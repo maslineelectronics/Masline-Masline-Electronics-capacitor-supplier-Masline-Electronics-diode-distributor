@@ -1,0 +1,2 @@
+# Masline-Masline-Electronics-capacitor-supplier-Masline-Electronics-diode-distributor
+Masline Electronics is a trusted capacitor supplier and diode distributor, delivering authentic, manufacturer-approved components at competitive prices. With vast inventory, bulk discounts, and fast global shipping, Masline supports engineers, OEMs, and procurement teams with reliable sourcing and cost-effective solutions.
